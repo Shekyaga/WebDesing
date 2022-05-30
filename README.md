@@ -11,4 +11,4 @@ I've checked my HTML skills. I'd need a practicing and make some rehearsals.
 
 
 
-Thanks to Beril Sülü, who is helping me to recover from the endless suffer.
+Thanks to Beril Sülü
